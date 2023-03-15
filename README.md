@@ -1,1 +1,1 @@
-- I'm Blizzerac, currently studying in Software Engineering! Looking to expand my horizons and take on new challenges. Feel free to reach out to me!
+- I'm Blizzerac, currently studying a Bachelor's of Software Engineering with a Second Major in Finance. I'm always looking to refine my skills and take on new challenges and learning experiences, so feel free to reach out to me!
